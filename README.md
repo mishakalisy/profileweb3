@@ -1,5 +1,4 @@
-# PROFILES FOR WEB3..............................................
-- 0xmisha (1).jpg.
+# PROFILES FOR WEB3...............................................
 - 0xmisha (10).jpg
 - 0xmisha (2).jpg
 - 0xmisha (3).jpg
